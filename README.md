@@ -1,0 +1,2 @@
+# great-skills-in-data-entry
+If you are seeking an honest, reliable and professional virtual assistant for Data Entry, PDF Conversion to Excel/Word, Large Excel Database Cleanup/Data Organisation, Web Research or any MS Office related tasks, then, you are at the right place.   I am a full-time freelancer with over 8 years of experience in the corporate sector and skilled to perform all the above-mentioned tasks with precision. 100% accuracy and Client satisfaction are my top-most priorities.
